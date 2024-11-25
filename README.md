@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Cris-Programador
-- 👀 I’m interested in Apender a programar e desenvolver.
+- 👀 I’m interested in Aprender a programar e desenvolver e busco um trabalho que me proporcione isso.
 - 🌱 I’m currently learning engenharia de software.
 - 💞️ I’m looking to collaborate on desenvolvimento.
 - 📫 How to reach me pelo número de celular +5561996725010
